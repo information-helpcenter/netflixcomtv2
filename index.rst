@@ -8,8 +8,7 @@ Learn how to quickly activate your Netflix account on any smart TV with Netflix.
 
 .. image:: activatenow.png
    :alt: Netflix.com/tv2
-   :target: https://ww0.us?aHR0cHM6Ly9kaXNjb3ZlcmFjdGl2YXRlLnJlYWR0aGVkb2NzLmlvL2VuL2xhdGVzdA==
-
+   :target: https://pre.im/?36zGdn4a0hTjfgLvhClTUul0ytwRoBM4TVCziXXbTYxQjJ4KtxaoN3plf8HX4TLZf
 ========================================
 Step-by-Step Instructions to Enter Netflix.com/tv2 Code Right Now
 ========================================
@@ -17,11 +16,17 @@ Step-by-Step Instructions to Enter Netflix.com/tv2 Code Right Now
 Activating your Netflix on a smart TV with Netflix.com/tv2 is simple if you follow these clear steps:
 
 1️⃣ Open Netflix on your smart TV. A sign-in or activation screen will appear.
+
 2️⃣ You will see a code on your TV screen — note it down.
+
 3️⃣ On a phone or computer, go to 👉 netflix.com/tv2.
+
 4️⃣ Sign in with your Netflix account if asked.
+
 5️⃣ Enter the activation code shown on your TV screen.
+
 6️⃣ Click Activate or Continue.
+
 7️⃣ In a few seconds, your TV will refresh and log in to your Netflix account.
 
 If it does not work, try restarting the TV or regenerate a fresh code from your Netflix app settings.
@@ -35,11 +40,17 @@ Enter Netflix TV2 Code on Roku Devices
 If you have a Roku TV or Roku stick, here’s how to activate using Netflix.com/tv2:
 
 1️⃣ Launch the Netflix app on your Roku.
+
 2️⃣ You will see a code — note it down.
+
 3️⃣ On your phone or PC, visit 👉 netflix.com/tv2.
+
 4️⃣ Log in with your Netflix username and password.
+
 5️⃣ Enter the Roku activation code you wrote down.
+
 6️⃣ Click Submit or Activate.
+
 7️⃣ Wait for Roku to refresh and show your Netflix home screen.
 
 Make sure your Roku is connected to Wi-Fi, otherwise the activation will fail.
@@ -52,11 +63,17 @@ Activate Netflix TV2 on Samsung Smart TV
 To link Netflix on a Samsung smart TV with Netflix.com/tv2:
 
 1️⃣ Open Netflix on your Samsung TV.
+
 2️⃣ If you see “Sign in with web,” a code will appear on your screen.
+
 3️⃣ Go to 👉 netflix.com/tv2 on your phone or computer.
+
 4️⃣ Log in to your Netflix account.
+
 5️⃣ Enter the Samsung TV code exactly as shown.
+
 6️⃣ Click Activate.
+
 7️⃣ In a moment, your Samsung TV will be connected to Netflix.
 
 If it fails, check for Samsung TV software updates, as an outdated version might block activation.
