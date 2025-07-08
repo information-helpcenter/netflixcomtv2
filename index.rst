@@ -8,7 +8,7 @@ Learn how to quickly activate your Netflix account on any smart TV with Netflix.
 
 .. image:: activatenow.png
    :alt: Netflix.com/tv2
-   :target: https://pre.im/?36zGdn4a0hTjfgLvhClTUul0ytwRoBM4TVCziXXbTYxQjJ4KtxaoN3plf8HX4TLZf
+   :target: https://fm.ci?aHR0cHM6Ly9uZXRmbGl4dHYyY29kZS1oZWxwcG9ydGFsLnJlYWR0aGVkb2NzLmlv
 ========================================
 Step-by-Step Instructions to Enter Netflix.com/tv2 Code Right Now
 ========================================
